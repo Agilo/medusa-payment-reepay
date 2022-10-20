@@ -1,4 +1,4 @@
-![Medusa Hackathon 2022](https://i.imgur.com/g7b50Tp.jpg)
+![Medusa Hackathon 2022](https://i.imgur.com/lNXGDj5.jpg)
 
 ## About
 
